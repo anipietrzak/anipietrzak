@@ -1,4 +1,4 @@
-### Hi there 👋, my name is Anita! 
+### Hi there 👋, my name is Anita
 
 #### I'm a Tech Enthusiast 👩‍💻 😃 passionate about learning and working with new tech.
 So far I have been working with:
